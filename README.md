@@ -1,2 +1,2 @@
-# Sieun_Kim
+# S_K
 Who you are.
